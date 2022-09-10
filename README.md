@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Sebastián Ávila A.
+- 👋 Hi, I’m Sebastián
 - 👀 I'm interested in everything around me
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on something fun
